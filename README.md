@@ -1,1 +1,1 @@
-# soyoungchun.github.io.
+# soyoungchun.github.io
